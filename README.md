@@ -1,1 +1,1 @@
-# oopiizii-NAM
+# praktika-nam
